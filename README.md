@@ -11,5 +11,4 @@
 <img width="100" height="100" alt="tumblr_e8d6f60e7bdac51621c27c576d1e026e_d3abccd9_100" src="https://github.com/user-attachments/assets/529e3f4c-aa2d-40b0-884a-ee94ced1bcc9" /><img width="100" height="100" alt="tumblr_5e950caf5236a4872f371982b4238bc9_c90b70af_100" src="https://github.com/user-attachments/assets/83928d4f-c84a-4615-bdb5-3ca4e49ffeae" /><img width="100" height="100" alt="tumblr_c1c0f454feb476f700fd02d23e3436d6_8383b710_100" src="https://github.com/user-attachments/assets/d976ea7d-12c8-484f-8be0-03a5ba8033f2" />
 
 
-<p align="center">
 <img width="99" height="56" alt="tumblr_3630ef3b698102cdec4600c235689235_7c219e4c_100" src="https://github.com/user-attachments/assets/1e580e0b-6b38-457a-ad94-11b3a50ce2a3" /><img width="99" height="56" alt="tumblr_6b17f95cf9c97112a07bd870bcf04152_7cd207d3_100" src="https://github.com/user-attachments/assets/80488d65-6588-4f3f-928c-ad3f0b7f30be" />
