@@ -12,3 +12,6 @@
 
 
 <img width="99" height="56" alt="tumblr_3630ef3b698102cdec4600c235689235_7c219e4c_100" src="https://github.com/user-attachments/assets/1e580e0b-6b38-457a-ad94-11b3a50ce2a3" /><img width="99" height="56" alt="tumblr_6b17f95cf9c97112a07bd870bcf04152_7cd207d3_100" src="https://github.com/user-attachments/assets/80488d65-6588-4f3f-928c-ad3f0b7f30be" />
+
+
+my shits fookd I know 
